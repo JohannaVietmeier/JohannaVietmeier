@@ -17,7 +17,7 @@ Jetzt habe ich endlich die Zeit, es aufzuschreiben.
 
 Lesen Sie die About in meinem Profil - (siehe linke Seite)
 Bitte kontaktieren Sie mich über GitHub (Link), wenn Sie Fehler finden, oder neue Gedanken hinzufügen möchten.
-Ich spreche deutsch und englisch und verstehe französisch und niederländisch.
+Ich spreche Deutsch und Englisch und verstehe Französisch und Niederländisch.
 
 ## English
 I am Johanna Vietmeier and I live in Emsdetten in NRW, Germany.
