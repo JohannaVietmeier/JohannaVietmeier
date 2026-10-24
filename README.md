@@ -31,7 +31,7 @@ Since 2001 I am divorced. I have 1 daughter and 3 grandchildren, aged 14, 10 and
 
 Three of my four children died in me due to poisoned pregnancies (eclampsia). 
 I want to know, who and what poisoned me. 
-In the 80th and 90th I red a lot about this subject. 
+In the 1980 th and 1990 th  I red a lot about this subject. 
 Now I finally have the time to write it down.
 
 Read the About in my profile - on the left side
